@@ -1,1 +1,1 @@
-## Hi there 👋, I'm Damion 🧑‍💻 🤖
+## 👋 Hi there, I'm Damion 🧑‍💻 🤖
